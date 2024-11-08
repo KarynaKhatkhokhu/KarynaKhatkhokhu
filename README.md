@@ -1,4 +1,4 @@
-### Hi there 👋
+All I do is get obssessed with tracking things in a very ✨ _specific_ ✨ way that suit's me and force the tools at my disposal to **obey**.
 
 <!--
 **KarynaKhatkhokhu/KarynaKhatkhokhu** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
